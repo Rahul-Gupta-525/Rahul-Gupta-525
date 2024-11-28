@@ -14,6 +14,8 @@ This introduction highlights your personality and skills, making your profile in
 
 linkedin url - https://www.linkedin.com/in/rahul-kumar-gupta-bb18b0248/
 
+Resume url - https://resume-builder-test-new.masaischool.com/resume/public?resumeId=67484c497ca4c4119ea836c9
+
 
 
 
